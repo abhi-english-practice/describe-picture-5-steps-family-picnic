@@ -1,0 +1,1 @@
+# describe-picture-5-steps-family-picnic
